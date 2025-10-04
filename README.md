@@ -1,10 +1,13 @@
-# Please read (Pony Town)
-**Hey buddy, it's Bastard | TV | Maiden. I'm in my earlty 20s.**
+# About me!
+>**Hey buddy, it's Bastard | TV | Maiden. I'm 20 (currrently, 4th october 2025).**
 
-_They/Them please, genderqueer and POC._
+>I'm genderqueer and bisexual, happily taken! I use they/them (she or he for close people only).
 
-- I won't lend you my supporter limit help if you're making another kingdom/lab/"gorey" RPs.
-- If i cover your skin please move. 70% of times im AFK so there's ittle chances i might notice you.
-- If you want to take inspirations of my skins ask first. 90% of skins that were made by me are my OCs.
+# My interests!
+- Main ones: Art, history, biology, roleplays, worldbuilding, gaming and music.
+- You can ask about my fandoms but i don't really interact with fandoms (especially with old ones, when i used to be).
 
-- My main interests are art, history, biology and fashion.
+# Before You Interact (BYI)
+- You should be <ins> 16 or over </ins> to interact with me, and <ins> 18 or over </ins> to befriend. I don't feel myself comfortable around some minors, please keep in mind that i'm an *adult*.
+- Don't push me to talk with you. Please respect my boundaries.
+  
